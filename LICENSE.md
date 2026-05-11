@@ -1,4 +1,4 @@
-# 
+# Enhance DaVinci Resolve for PC | DaVinci Resolve for Windows with automatic DaVinci Resolve for PC | DaVinci Resolve for Windows Tool | multi-cam-editing + time-remapping, the #1
 
 
 
